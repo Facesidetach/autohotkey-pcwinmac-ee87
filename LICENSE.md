@@ -1,4 +1,4 @@
-# 
+# Best AutoHotkey templates for Mac OS | Premium AutoHotkey templates for PC Windows. Featuring macro recording and task scheduling — optimized for maximum performance on every platform.
 
 
 
